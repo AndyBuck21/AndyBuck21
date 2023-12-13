@@ -1,5 +1,5 @@
 # 💫 About Me:
-Idiosyncratic, whimsical ,mercurial Data Scientist/Analyst Cryptographer💙💙 Software Developer☺ Game Developer Deep learning Engineer💻
+Idiosyncratic, whimsical ,mercurial, Data Scientist/Analyst Cryptographer💙💙 Software Developer☺ Game Developer Deep learning Engineer💻
 
 
 ## 🌐 Socials:
